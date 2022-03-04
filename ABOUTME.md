@@ -1,0 +1,15 @@
+# about me
+
+                                                          HELLO THERE👋
+                                                                        
+                                                                        
+This is Teja Durgi. 
+
+I started programming from an early age and got a bachelor's degree,
+so I can say that my interest in this field has increased over time. Working in the technology sector  has given me the right experience in the industry.
+As today's businesses become more and more inseparable from information technology, I strive to apply my expertise to bridge the gap between technology and business. 
+
+
+My main interest is only to share my technical know-how with people. I really enjoy working on technical issues and developing new ideas.
+I also believe in ideology to think before acting. This allows us to focus on innovation as well as continuous improvement.
+
